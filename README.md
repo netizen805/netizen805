@@ -11,4 +11,4 @@ myself. I look forward to new opportunities where I can contribute and grow both
 - 💬 Ask me about anything
 - 📫 How to reach me: through email - hontivilmos@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: Once I fell into a pool at night because my friend kicked the ball in it, and I tried to get it out. I ended up being soaking wet. 😂
+- ⚡ Fun fact: Once I fell into a pool at night because my friend kicked the ball in it, and I tried to get it out. I ended up being soaking wet.😂
